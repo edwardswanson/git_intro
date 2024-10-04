@@ -1,1 +1,2 @@
 Edward Swanson
+swansoed@oregonstate.edu
