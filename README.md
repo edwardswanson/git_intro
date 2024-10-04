@@ -1,2 +1,1 @@
 Edward Swanson
-48
